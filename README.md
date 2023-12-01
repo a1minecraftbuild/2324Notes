@@ -1,1 +1,1 @@
-# Notes for my first year at SICTC. heheheha
+# Notes for my first year. heheheha
